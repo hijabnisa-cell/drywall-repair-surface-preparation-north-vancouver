@@ -43,10 +43,31 @@ Regular inspections and prompt repairs help maintain wall integrity and appearan
 
 Explore more maintenance tips for the [Best DryWall Repair in North Vancouver](https://dhapainting.ca/drywall-repair-surface-preparation-north-vancouver/)
 
-## FAQs
+## Frequently Asked Questions
 
-Include answers covering drying time, sanding, priming, repainting, and repair durability.
+### What is drywall repair?
+Drywall repair involves fixing holes, dents, cracks, nail pops, and other surface damage to restore walls and ceilings before finishing or painting.
 
----
+### Why is surface preparation important before painting?
+Proper surface preparation helps paint adhere evenly, reduces visible imperfections, and contributes to a longer-lasting finish.
+
+### Can small cracks simply be painted over?
+Painting over cracks usually does not solve the underlying issue. Filling, sanding, and priming the damaged area typically produces a better result.
+
+### How long does drywall compound take to dry?
+Drying time depends on the product used, humidity, and temperature, but many compounds require several hours before sanding.
+
+### Is sanding always necessary after repairs?
+Sanding helps create a smooth transition between repaired areas and the surrounding surface, improving the final appearance.
+
+### Should repaired drywall be primed?
+Applying primer to repaired sections promotes even paint absorption and helps achieve a consistent finish.
+
+### What causes recurring drywall cracks?
+Structural movement, settling, temperature changes, and moisture can all contribute to recurring cracks.
+
+### Can damaged drywall always be repaired instead of replaced?
+Minor and moderate damage can often be repaired, while severe water damage or structural issues may require replacement.
+
 
 Educational resource for [Drywall Repair and Surface Preparation North Vancouver.](https://dhapainting.ca/drywall-repair-surface-preparation-north-vancouver/)
